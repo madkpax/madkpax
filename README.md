@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Maddy Paxson, undergrad at the University of Michigan, summer intern at Harvard University @madkpax
+- 👋 Hi, I’m Maddy Paxson, undergrad at the University of Michigan, research coordinator at BCFG @madkpax
 - 👀 I’m interested in psychology, particularly how people cultivate their identities and their relationships
 - 🌱 I’m currently learning about LookIt, a platform for recruiting child participants
 - 📫 How to reach me: Twitter: @paxsonmaddy LinkedIn: Maddy Paxson
